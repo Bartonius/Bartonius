@@ -1,3 +1,3 @@
 hi
-pronouns are he/they
+pronouns are they/he
 thanks
